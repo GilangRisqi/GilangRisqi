@@ -1,6 +1,5 @@
-# Halo semua! 
 
-Perkenalkan nama saya **Gilang Risqi Pratama**.<br>
+Perkenalkan saya **Gilang Risqi Pratama**.<br>
 
 Saya seorang **Mahasiswa** di Universitas Islam Syekh Yusuf-Tangerang.<br>
 
